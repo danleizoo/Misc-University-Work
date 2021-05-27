@@ -1,1 +1,1 @@
-Miscellaneous work cobbled together from university
+Work cobbled together from university
